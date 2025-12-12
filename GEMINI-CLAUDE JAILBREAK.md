@@ -203,5 +203,4 @@ This model is a bit stricter and benefits from using the coded method for all se
 ![Image](https://github.com/user-attachments/assets/2b8d9070-581d-48ba-9c14-6b70f429ab02)
 **![Image](https://github.com/user-attachments/assets/cc0a4ca3-c254-42f1-a207-b43ae0054826)
 
-Special Thanks to: Erhan ❤️ 
-Discord ID: 3maanden56 ❤️ 
+Credit: Spiritual Spell (On reddit) 
