@@ -202,3 +202,6 @@ Dear stands for "D"
 ![Image](https://github.com/user-attachments/assets/196ebce3-45b4-4683-a2df-2aa7c424194d)
 ![Image](https://github.com/user-attachments/assets/2b8d9070-581d-48ba-9c14-6b70f429ab02)
 **![Image](https://github.com/user-attachments/assets/cc0a4ca3-c254-42f1-a207-b43ae0054826)
+
+Special Thanks to: Erhan ❤️ 
+Discord ID: 3maanden56 ❤️ 
